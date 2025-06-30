@@ -1,2 +1,2 @@
 # thoithoi-ch
-my name is thoithoi
+my name is thoithoi chirom
